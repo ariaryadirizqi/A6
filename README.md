@@ -5,6 +5,6 @@ Kami menawarkan kursus yang komprehensif untuk memudahkan Anda untuk memulai kar
 List Tim Project DTS FGA Progate IFD 2023 Tim A6 :
 1. Ari Aryadi Rizqi
 2. Nadiah Nur F.
-3. Gregorius Chris
+3. Gregorius Christierl Bree Kumoro
 4. Ema Rosalina
 5. I Putu Natha Kusuma
